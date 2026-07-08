@@ -1,6 +1,6 @@
 # The Prompt Age
 
-Stories about thinking in the new age.
+Stories about thinking, in a new age.
 
 ---
 
