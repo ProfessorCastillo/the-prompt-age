@@ -1,6 +1,6 @@
 # The Prompt Age
 
-Stories about thinking, from a wired universe.
+Stories about thinking in the new age.
 
 ---
 
